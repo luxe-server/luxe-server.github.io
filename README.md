@@ -1,1 +1,2 @@
-# luxe-server.github.io
+New Website By ~GMZN Host~
+Enjoy :)
