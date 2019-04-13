@@ -1,2 +1,2 @@
-New Website By ~GMZN Host~
+New Website By |~| GMZN Host |~|
 Enjoy :)
